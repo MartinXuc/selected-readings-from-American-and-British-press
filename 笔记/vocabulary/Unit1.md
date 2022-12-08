@@ -1,0 +1,46 @@
+# Vocabulary - Unit1
+
+- minted --- 崭新的、刚完成的
+- prestigious --- 受尊敬的，有声望的
+- wrap up --- 圆满完成 ， 圆满结束
+- pitch in  --- 参与
+- orphanage --- 孤儿院
+- stint --- （在某地的）工作时间
+- intern --- 实习生
+- slacker --- （非正式）逃避工作的人 ； 懒鬼
+- treadmill --- 单调的工作; 跑步机
+- proponent --- 支持者； 提出者
+- quantifiable --- 可以计量的
+- underscore --- 强调
+- grade point average --- 平均绩点
+- rite --- 惯例
+- passage --- 过度
+- college-bound --- 即将进入大学校门的
+- reckon --- 估计；认为
+- clientele --- 顾客；客户
+- nil --- 无，零
+- high-profile --- 高调的；名气大的
+- boost --- 提高；增加
+- eventual --- 最终的
+- depressurize --- 使减压，使降压
+- incredibly --- 难以置信的，极为
+- burn out --- （使）筋疲力尽
+- advocate --- 支持者
+- defer --- Vt. 拖延；推迟
+- rejuvenated  --- 恢复活力的
+- excel --- 胜过（他人）
+- reinforce --- 加强；增强
+- alien --- 陌生的
+- hard sell --- 强行推销
+- myth --- 错误的看法（或认识）
+- deferral  --- n. 延期
+- hurdle --- 障碍， 困难
+- pony up --- （美俚）付账， 付钱
+- dough --- （美俚）钱
+- beyond the reach of --- 超出。。。能力之外
+- stipend --- 薪俸， 生活津贴
+- backpacking --- 背着背包徒步旅行
+- self-starter --- （美口）做事主动的人
+- self-imposed --- 自愿承担的
+- hiatus --- 中断，间断
+- odds --- 可能性
